@@ -1,2 +1,11 @@
 # About-SOMATCO
 SAUDI(OVERSEAS) MARKETING &amp; TRADING COMPANY
+In 1968, SOMATCO steps first in the field of Medical, Scientific and Laboratory equipment, Accessories and consumable business in order to serve Health, Science and Technology sector in the Kingdom. In this long run it had successfully served almost all the major departments of Ministries, Universities, Schools and many other sectors of government and also the ever-blooming private sectors in the region.In fact it has become one of the top most and leading Medical Company.
+
+SOMATCO has a network of Medical and Scientific Showrooms in Kingdom in all major cities like Riyadh, Al-Khobar, Jeddah, Al-Ahsa, Madina, Al-Gassim , Khamis Mushait, Tabuk, Hial, Sakakah. SOMATCO also have a Service Center For Medical & Scientific Equipments in Riyadh, which is serving the community science from 1968 in the field of Medical & Scientific Equipments. This Department serves our customer in giving services against any manufacturing defects of its sold equipments and also maintains stocks of spare parts for the sold equipments. In this department the highly qualified Engineers and well-trained Technical persons gives services to our customers.
+
+SOMATCO have a huge stock of more than 30,000 Medical, Scientific, Laboratory, Chemicals and Hospital Equipments from all over the world, always ready to serve the customers according to their requirement.
+
+SOMATCO have a strong team of well-qualified employees in different departments to serve the customers in the field of Medical, Scientific, Laboratories, Chemicals and Hospital furniture. SOMATCO have more than 100 well-qualified employees team, ready to serve at any time with their talent.
+
+SOMATCO have overseas suppliers from top most countries like America, Japan, UK, Germany, France, India, China, Italy, Korea and many more. With this new technology in hands SOMATCO is always ready to fulfill any of your immediate requirement in this field. We attribute much of our success to the attention we pay to maintaining standards quality in service and fast delivery is a priority too. We maintains a large stockholding of Medical, Laboratory, Scientific, Hospital Equipments & Lab. Chemicals ready to dispatch on requirement of our customers.
